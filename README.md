@@ -1,1 +1,1 @@
-# Cryptocurrencies
+# Cryptocurrencies 💱 💰
